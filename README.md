@@ -252,7 +252,7 @@ Other         ██░░░░░░░░░░░░░░░░░░░░
 
 ---
 
-**"The best time to plant a tree was 20 years ago. The second best time is now."**
+**"The best time to plant a tree was 5 years ago. The second best time is now."**
 
 *Let's build something amazing together! 🚀*
 
